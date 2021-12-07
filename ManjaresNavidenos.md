@@ -13,9 +13,14 @@
   
 ### Procedimiento
 1. Mezclar Leche Condensada, Leche de Coco y Crema de Coco.
-2.  Añadir ron a la mezcla. (A gusto. No añada demasiado que se daña.)
-3. Congelar o enfriar embotellado.
-4. Servir con canela.
+2. Añadir ron a la mezcla. (A gusto. No añada demasiado que se daña.
+3. Batir y calentar en la estufa.
+4. Embotellar.
+5. Congelar y enfriar.
+6. Servir con canela.
+  
+### Vídeo
+- https://www.youtube.com/watch?v=7VVfVkoNoSg
 
 ### Referencias
 - Ver a mi papá haciendolo en casa.
